@@ -10,4 +10,4 @@
 
 
 ## 联系我们
-- [TG](https://t.me/tiktok_tool)
+## [TG](https://t.me/tiktok_tool)
